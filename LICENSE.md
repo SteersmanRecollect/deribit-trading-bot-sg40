@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with ultimate deribit trading bot Tool | latency-optimization + scalping, the #1 deribit trading bot. Includes latency-optimization and scalping for a
 
 
 
